@@ -40,7 +40,7 @@ recipe:
     The mayo will last for about a week in the refrigerator.&nbsp;
 ---
 
-Mayonnaise has grown to be my favorite condiment, and I can state that with confidence. I love a good hot sauce, ketchup is a staple in my fridge, and I can't imagine not having mustard in my life. You just can't be the&nbsp;*versatility*&nbsp;of mayo.
+Mayonnaise has grown to be my favorite condiment, and I can say that with confidence. I love a good hot sauce, ketchup is a staple in my fridge, and I can't imagine not having mustard in my life, but you just can't be the&nbsp;*versatility*&nbsp;of mayo. This quick, easy recipe for homemade mayo is a game changer.
 
 &nbsp;
 
@@ -48,7 +48,7 @@ Spread it on a hamburger. Make it into an aioli and put it on your hamburger. Th
 
 &nbsp;
 
-Until recently, I thought all mayo was created equal. I'm a sucker for advertising so I've tried them all. The promises of how one was better than the other always just fell short -- mayonnaise was, after all, just mayonnaise. That changed when I got curious about what Guy Fieri's "Donkey Sauce" tastes like and came across [this recipe](https://www.macheesmo.com/homemade-donkey-sauce/), which said:
+Until recently, I thought all mayo was created equal. I'm a sucker for advertising so I've tried them all. The promises of how one was better than the other always just fell short – mayonnaise was, after all, just mayonnaise. That changed when I got curious about what Guy Fieri's "Donkey Sauce" tastes like and came across [this recipe](https://www.macheesmo.com/homemade-donkey-sauce/), which said:
 
 > Can you use store-bought mayo? Absolutely\! But to get the true flavor town experience it’s nice to try homemade\!
 
