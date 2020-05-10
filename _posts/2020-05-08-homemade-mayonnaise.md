@@ -2,7 +2,7 @@
 title: Homemade Mayonnaise
 categories:
   - Condiments
-date: 2020-05-11 00:00:00
+date: 2020-05-08 00:00:00
 featured_image: /uploads/img-1902.jpg
 recipe:
   servings: 1 Pint
