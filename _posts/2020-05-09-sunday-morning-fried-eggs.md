@@ -4,7 +4,7 @@ categories:
   - Breakfast
   - Eggs
   - Brunch
-date: 2020-05-12 00:00:00
+date: 2020-05-09 00:00:00
 featured_image: /uploads/img-1951.jpg
 recipe:
   servings: 2 Eggs
@@ -43,7 +43,7 @@ Sunday morning brunch is a Bonnette household tradition. We sleep as late as we 
 
 That's, of course, not to say that fried eggs can only be for breakfast or brunch\! The truth is that there's not an hour in the day that a good fried egg&nbsp;*isn't*&nbsp;going to hit the spot. You know I've got a weak spot for hamburgers, and if you've never tried that combination I can't recommend it enough, but they're great with just about anything that could use little dose of delicious fat ooey-gooey goodness. If you've got any recommendations, please leave them in the comments below\! The long and the short of it is that knowing hot to really nail a fried egg is an easy way to up your culinary game all day long.
 
-Fried eggs haven't always gone so smoothly for me. I found getting them right consistently much harder than I would have expected, given that Waffle House seems to get them right all day every day. Mine would come out undercooked, overcooked, gummy, or just not very tasty more often than not, if I'm being honest. It was pretty frustrating really -- having a delicious meal cooked and then topping it with a very meh egg.
+Fried eggs haven't always gone so smoothly for me. I found getting them right consistently much harder than I would have expected, given that Waffle House seems to get them right all day every day. Mine would come out undercooked, overcooked, gummy, or just not very tasty more often than not, if I'm being honest. It was pretty frustrating really – having a delicious meal cooked and then topping it with a very meh egg.
 
 The first step in my egg frying journey was realizing that I needed more butter. If you look on the [Ask Culinary](https://www.reddit.com/r/AskCulinary/){: target="_blank"} or [Cooking](https://www.reddit.com/r/Cooking/){: target="_blank"} subreddits, the consensus is always just "add more butter". Turns out they've been right this whole time. The second, and I'd argue bigger differentiator, was that I needed to actually baste the eggs in the butter. This helps the tops of the eggs cook through before the bottom ends up overcooked and gummy. It makes it easy for me to adjust how I want the yolk too, by basting it if I want it more set or only basting the whites if I want it nice and runny. The changes are super simple, but I haven't made a single egg I didn't enjoy since implementing them.
 
