@@ -3,7 +3,7 @@ title: Homemade Mayonnaise
 categories:
   - Condiments
 date: 2020-05-11 00:00:00
-featured_image:
+featured_image: /uploads/img-1902.jpg
 recipe:
   servings: 1 Pint
   prep: 5 minutes
@@ -46,7 +46,7 @@ Mayonnaise has grown to be my favorite condiment, and I can say that with confid
 
 Spread it on a hamburger. Make it into an aioli and put it on your hamburger. The variety of dipping sauces you can create is endless, there's nothing better than a good dipping sauce for french fries when you're enjoying a great hamburger. Like I say, the uses for a good mayo are nearly limitless.
 
-&nbsp;
+![Our homemade garlic aioli, which we love on hamburgers.](/uploads/img-1912.jpg "Homemade garlic aioli -- it's hard to beat on a hamburger."){: width="1500" height="2000"}
 
 Until recently, I thought all mayo was created equal. I'm a sucker for advertising so I've tried them all. The promises of how one was better than the other always just fell short – mayonnaise was, after all, just mayonnaise. That changed when I got curious about what Guy Fieri's "Donkey Sauce" tastes like and came across [this recipe](https://www.macheesmo.com/homemade-donkey-sauce/), which said:
 
