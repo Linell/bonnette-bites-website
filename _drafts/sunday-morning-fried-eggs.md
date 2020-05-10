@@ -5,7 +5,7 @@ categories:
   - Eggs
   - Brunch
 date: 2020-05-12 00:00:00
-featured_image:
+featured_image: /uploads/img-1951.jpg
 recipe:
   servings:
   prep:
