@@ -51,23 +51,23 @@ Roasted garlic is....in a word, everything. It's a coveted ingredient in my hous
 
 Roasted garlic is&nbsp;*very*&nbsp;forgiving, which is perfect for novice cooks looking to step up their game. You can cook it for a pretty long time, but I've found that an hour and fifteen minutes is sort of the sweet spot for our oven. Of course if you want to roast it on a higher temperature for a shorter amount of time, you can, but beware that it could result in some of your cloves burning on the outside. This results in a hard, blackened clove that are no good to eat, unless burned food is your speciality. We don't judge in this household.
 
-![](/uploads/img-2011.jpg){: width="3120" height="2340"}
+![](/uploads/img-2011.jpg)
 
 Taking the paper skin off garlic can be a pain in the ass. One wrong move and you've got cloves breaking off left and right, so I try not to stress about getting every single piece off. Cutting the tops off is actually my favorite part of the entire process because you get to see down into the garlic and where the oil absorbs. My favorite knife to use for cutting the tops off the garlic is definitely a small paring knife, like this [Cuisinart knife](https://www.amazon.com/Cuisinart-C77SS-3PR-Graphix-Collection-Stainless/dp/B01DUT41M0/ref=sr_1_2?dchild=1&amp;keywords=cuisinart+stainless+paring+knife&amp;qid=1589306189&amp;s=home-garden&amp;sr=1-2){: target="_blank"}.
 
 Once you pull the garlic out of the oven after its initial roast, you can leave it be. You do&nbsp;*not*&nbsp;have to put it back in the oven for an additional 5 minutes. If you choose not to roast any additional time, it should look like this:
 
-![](/uploads/img-2016.jpg){: width="3120" height="2340"}
+![](/uploads/img-2016.jpg)
 
 Man, I could drink the olive oil in the bottom of that foil packet. I won't, but I could.
 
 I really like the little crispy, charred bits that form on the edges of the cloves from that exposed roasting time. Mine tends to look like this when I'm done with the initial roast and the exposed roast:
 
-![](/uploads/img-2018.jpg){: width="3120" height="2340"}
+![](/uploads/img-2018.jpg)
 
 It's a sticky job to squeeze the gooey, delicious cloves out of their skin. You can take the back of your paring knife and "toothpaste roll" them out, but when I tried that I ended up with skin in my roasted garlic. So, I prefer to use my hands. You can dip your fingers in a little bit of water to help it not stick or spray your fingers with non-stick cooking spray.&nbsp;
 
-![](/uploads/img-2021.jpg){: width="3120" height="2340"}
+![](/uploads/img-2021.jpg)
 
 Mashing your garlic once it cools it definitely optional, but to me it's the easiest way to not have to do work later down the road if I'm adding it to a sauce or a soup. You can store roasted garlic in a jar for about a week, but I promise it won't make it the full week. Once you start cooking with it, you aren't going to want to stop. Ever.
 
