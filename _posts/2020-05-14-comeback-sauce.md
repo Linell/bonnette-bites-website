@@ -35,11 +35,11 @@ recipe:
 
 Comeback sauce is a staple in our house, because a) it's delicious and b) it was invented ten minutes away from us at a Greek restaurant called The Rotisserie (now closed) in downtown Jackson, Mississippi. There are definitely variations of the sauce; some people add horseradish, some people add oil, and some people add pickle juice. Ours is a simple version that pairs perfectly with a hearty salad, veggie sticks, or our favorite - a delicious dipping sauce for crawfish boils. There is nothing better\!
 
-![It's so easy to make and takes less than five minutes. Toss everything in a bowl and whisk!](/uploads/img-2099.jpg)
+![](/uploads/img-2099.jpg "It's so easy to make and takes less than five minutes. Toss everything in a bowl and whisk!")
 
 Our recipe serves between 14-16 people and makes about 2 cups and takes less than five minutes in total to whip up. We really like to make ours at least 24 hours in advance of serving, but preferably 48 hours if we can. The longer it sits, the better (and spicier) it gets and for crawfish, that's exactly what you want.
 
-![Make sure you transfer the sauce to an airtight container after whisking.](/uploads/img-2102.jpg)
+![](/uploads/img-2102.jpg "Make sure you transfer the sauce to an airtight container after whisking.")
 
 If you want less spice, definitely omit the powdered crab boil. Since we use this for crawfish, we like that it has the a similar flavor that we're using for the cook of the crawfish. If you are using it as a salad dressing, adding some pickle juice or vinegar to thin it out is a perfect way to get the consistency you're looking for\!
 
