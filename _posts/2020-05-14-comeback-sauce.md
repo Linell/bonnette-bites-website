@@ -14,7 +14,7 @@ recipe:
     * 6 tbps of ketchup
 
     * 6 tbps of hot sauce (we like [Louisian](http://www.louisiana-brand.com/){:
-    target="_blank"}[a](__notset__)brand best)
+    target="_blank"}[a](__notset__) brand best)
 
     * 3 tsp worcestershire sauce
 
@@ -33,7 +33,7 @@ recipe:
     2\. Store in the refrigerator in an airtight container. Use within one week.
 ---
 
-Comeback sauce is a staple in our house, because a) it's delicious and b) it was invented ten minutes away from us at a Greek restaurant called&nbsp;The Rotisserie (now closed) in downtown Jackson, Mississippi. There are definitely variations of the sauce; some people add horseradish, some people add oil, and some people add pickle juice. Ours is a simple version that pairs perfectly with a hearty salad, veggie sticks, or our favorite -&nbsp;a delicious dipping sauce for crawfish boils. There is nothing better\!
+Comeback sauce is a staple in our house, because a) it's delicious and b) it was invented ten minutes away from us at a Greek restaurant called The Rotisserie (now closed) in downtown Jackson, Mississippi. There are definitely variations of the sauce; some people add horseradish, some people add oil, and some people add pickle juice. Ours is a simple version that pairs perfectly with a hearty salad, veggie sticks, or our favorite - a delicious dipping sauce for crawfish boils. There is nothing better\!
 
 ![It's so easy to make and takes less than five minutes. Toss everything in a bowl and whisk!](/uploads/img-2099.jpg){: width="1500" height="2000"}
 
