@@ -49,7 +49,7 @@ I wanted to try her pan fried method, but I also wanted to bake it because I wan
 
 We followed her marinade recipe exactly as she has it written, and it absolutely made this tempeh taste like bacon. It was rich, smoky, and a little spicy - everything you're looking for in bacon. I let mine marinate in the fridge most of the day, because I'm a huge advocate for prepping as much of my meal as I can ahead of time.
 
-![](/uploads/img-2264.jpg){: width="1560" height="1170"}
+![](/uploads/img-2264.jpg)
 
 After my oven preheated for the baking portion, I brushed the tempeh with a little butter to replicate the flavors of pan frying. I think this helped a lot, because my oven baked bacon was just as crispy as the pan fried; it just took 20 minutes vs about 5 minutes, so if time is important to you - it's something to consider. Below are my pan frying results\! It was RICH, buttery, and delicious.
 
