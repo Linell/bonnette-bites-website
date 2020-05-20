@@ -45,7 +45,7 @@ In the South, comfort food is a driving force in our day to day life. Gooey mac 
 
 I wanted to try her pan fried method, but I also wanted to bake it because I wanted to see if the difference was noticeable enough to be worth the extra calories from butter. Her recipe called for cutting the 8oz of tempeh into 20 pieces, and my knife skills are not quite there yet and I think I yielded about 16 pieces. The leftover chunks that broke apart are what I used to try her pan frying technique.&nbsp;
 
-![](/uploads/img-2255.JPG){: width="3120" height="2340"}
+![](/uploads/img-2255.JPG)
 
 We followed her marinade recipe exactly as she has it written, and it absolutely made this tempeh taste like bacon. It was rich, smoky, and a little spicy - everything you're looking for in bacon. I let mine marinate in the fridge most of the day, because I'm a huge advocate for prepping as much of my meal as I can ahead of time.
 
@@ -53,18 +53,18 @@ We followed her marinade recipe exactly as she has it written, and it absolutely
 
 After my oven preheated for the baking portion, I brushed the tempeh with a little butter to replicate the flavors of pan frying. I think this helped a lot, because my oven baked bacon was just as crispy as the pan fried; it just took 20 minutes vs about 5 minutes, so if time is important to you - it's something to consider. Below are my pan frying results\! It was RICH, buttery, and delicious.
 
-![](/uploads/img-2275.JPG){: width="3120" height="2340"}
+![](/uploads/img-2275.JPG)
 
-![](/uploads/img-2277.jpg){: width="3120" height="2340"}
+![](/uploads/img-2277.jpg)
 
 Now for baking, I did have to flip the bacon halfway through. Tempeh can be a little delicate, so use extra care. I brushed the other side with butter once I flipped it and finished the cooking process. It is okay if it breaks apart\! The flavor doesn't change.
 
-![](/uploads/img-2269.jpg){: width="3120" height="2340"}
+![](/uploads/img-2269.jpg)
 
-![](/uploads/img-2280.JPG){: width="3120" height="2340"}
+![](/uploads/img-2280.JPG)
 
 As you can see with baking, the color isn't quite as dark and it looks a little dryer. I think I actually pan fried my bacon too long, because it was a little burnt. Linell is a huge fan of slightly burnt bacon, so he loved it\! I felt like baking really helped it retain the bacon texture that I enjoy, which is cooked but not so crispy that it breaks apart - and it saved me a ton calories because I didn't use a lot of butter.
 
 I was honestly so happy with how this oven-baked recipe turned out, because it reunited me with one of my true loves - a fried BLT. I saved what we didn't eat in an air-tight container and I'll be re-frying it up throughout the week to eat on toast.&nbsp;
 
-![](/uploads/img-2286.jpg){: width="2290" height="2340"}
+![](/uploads/img-2286.jpg)
