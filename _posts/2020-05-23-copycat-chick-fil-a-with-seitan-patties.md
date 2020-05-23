@@ -78,19 +78,19 @@ Since going mostly plant based, one thing we miss more than anything is Chick-Fi
 
 Luckily, as I've mentioned before, we got Damaris Phillips' [cookbook](https://www.nativefoods.com/){: target="_blank"}&nbsp;and she has a quick and easy recipe for seitan patties. We followed her directions, but replaced bourbon with pickle juice because Chick-Fil-A does brine their chicken in pickle juice. The recipe took about an hour and since we halved it, we had eight perfect little seitan cutlets ready to be breaded and deep fried. Don't stare at the cutlets pre-frying too hard, they're not pretty, but hot dang if they weren't tasty.
 
-![](/uploads/img-2397.JPG){: width="4032" height="3024"}
+![](/uploads/img-2397.JPG)
 
 One of my favorite tricks I've learned while breading things is the two hand method. One hand should only touch wet ingredients and one hand should only touch dry. It prevents your fingers from turning into concrete sludge during the process and allows the breading to stick a little better. Note: **DO NOT double batter these cutlets. Your breading will fall off.&nbsp;**It's going to seem like it's not a lot of breading, especially if you're Southern and you're used to double breading. It's going to be PERFECT as is. We promise.
 
-![](/uploads/img-2403.JPG){: width="4032" height="3024"}
+![](/uploads/img-2403.JPG)
 
 During frying, I was a little skeptical. I filled our largest cast iron pan about 2/3 of the way with canola oil. Chick-Fil-A does use peanut oil, but we didn't have any on hand. If you've got it, use it for an even more authentic experience. It looked like ALL of the breading disappeared the second the cutlets hit the oil. I cussed for a solid minute. Just look at how sad they are...
 
-![](/uploads/img-2404.JPG){: width="4032" height="3024"}
+![](/uploads/img-2404.JPG)
 
 ....but then it when it was ready to flip - they were golden. They were perfect. I literally teared up. When we pulled them out after frying and set them on the cooling rack, they were the exact color of a Chick-Fil-A cutlet and perfectly crispy. I stared at them like I had just given birth to them. So proud.
 
-![](/uploads/img-2410-edit.jpg){: width="2970" height="3259"}
+![](/uploads/img-2410-edit.jpg)
 
 We are going to be trying Nashville Hot Chicken Sandwiches next week, and I'll give a recipe for how we're adjusting Damaris' seitan recipe to fit more with that meal, as well as the change in breading and saucing method\!
 
