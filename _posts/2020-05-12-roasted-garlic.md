@@ -31,7 +31,7 @@ recipe:
     touch the tops, as the garlic could get stuck to it while roasting,
     resulting in a smaller yield.
 
-    * Roast for at least an hour, but as long as an hour and a half. Remove from
+    * Roast for at least an hour, but as long as an hour and fifteen minutes. Remove from
     the oven, and open your packet up to let the garlic breathe. (*Optional*\:
     *Place garlic back in the oven uncovered and roast for an additional 5
     minutes until some crispy bits have formed. It's textural and adds a
