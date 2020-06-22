@@ -50,11 +50,11 @@ recipe:
     * Salt to taste and serve with basmati or jasmine rice, naan, or by itself.
 ---
 
-\*exhales deep breath\* We hate leftovers. Like...if I were in a room with leftovers, Hitler, and Bin Laden, I'd shoot leftovers twice. (If you don't watch&nbsp;*The Office*, we still like you and we want you to be our friend.) So anyway, the thought of leftovers makes me want to die is what I'm getting at. Every once in a while, though, a dish will sneak its way into your life and change that sentiment. This is one of those dishes.
+\*exhales deep breath\* We hate leftovers. Like…if I were in a room with leftovers, Hitler, and Bin Laden, I'd shoot leftovers twice. (If you don't watch&nbsp;*The Office*, we still like you and we want you to be our friend.) So anyway, the thought of leftovers makes me want to die is what I'm getting at. Every once in a while, though, a dish will sneak its way into your life and change that sentiment. This is one of those dishes.
 
 I present to you: the red lentil. It's beautiful, nutrient dense, and the star of our Red Lentil Curry Stew.
 
-![](/uploads/img-3113.jpg)
+![](/uploads/img-3113-1.jpg){: width="1560" height="666"}
 
 There's a lot of steps, but this recipe is actually really simple once you get into it. It's all about building flavors and doing things in steps rather than tossing it all in a pot and walking away for an hour.&nbsp;
 
@@ -62,7 +62,6 @@ One thing to remember is that spice builds. So if you put the full 2 tbsp of red
 
 The finished product is so pretty. We served it with rice, naan, and then garnished with some greek yogurt (sour cream is fine, too).
 
-![](/uploads/img-3124.jpg)
-This dish can store in your fridge for up to a week, and it honestly tastes better two to three days after you make it. Everything melds together, the spices bloom more...lots of good things happen.
+![](/uploads/img-3124.jpg) This dish can store in your fridge for up to a week, and it honestly tastes better two to three days after you make it. Everything melds together, the spices bloom more…lots of good things happen.
 
 &nbsp;
