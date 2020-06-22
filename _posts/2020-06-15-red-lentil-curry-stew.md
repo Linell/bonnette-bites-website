@@ -54,7 +54,7 @@ recipe:
 
 I present to you: the red lentil. It's beautiful, nutrient dense, and the star of our Red Lentil Curry Stew.
 
-![](/uploads/img-3113-1.jpg){: width="1560" height="666"}
+![](/uploads/img-3113-1.jpg)
 
 There's a lot of steps, but this recipe is actually really simple once you get into it. It's all about building flavors and doing things in steps rather than tossing it all in a pot and walking away for an hour.&nbsp;
 
