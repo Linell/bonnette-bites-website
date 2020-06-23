@@ -47,7 +47,7 @@ A few weeks ago, I made a BLT using our [tempeh bacon](https://bonnettebites.com
 
 If you're making these the day of serving, be sure to pull your cream cheese out in time for it to soften before you mix in your chives. You can leave this spread and the blueberry sauce out at room temp for several hours, so feel free to make them in advance\! **You don't want them to be refrigerator cold when you top your biscuits**. You'll be sad, your guests will be sad. Everyone will be sad.
 
-![](/uploads/img-3253.JPG){: width="1560" height="1170"}
+![](/uploads/img-3253.JPG)
 
 The blueberry sauce is so easy and if you want a chunkier sauce with some whole blueberries left, cook for less time. It's going to reduce a good bit, so don't be intimidated by the amount we called for. If you have leftovers, refrigerated blueberry sauce is delicious on vanilla ice cream or mixed into pancake batter\!
 
