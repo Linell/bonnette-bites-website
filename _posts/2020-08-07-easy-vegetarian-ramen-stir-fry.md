@@ -27,7 +27,9 @@ recipe:
     * 2 tbsp sesame seeds for garnish
 
 
-    For the sauce * 2 tbsp coconut aminos (or soy sauce)
+    For the sauce
+
+    * 2 tbsp coconut aminos (or soy sauce)
 
     * 1 tsp sesame oil
 
