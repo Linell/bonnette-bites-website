@@ -59,7 +59,7 @@ Day 2940 of Quarantine: we're tired, y'all. Everyone is. I feel like menu planni
 
 This recipe does not include cooking the fried egg pictured, but if you're interested you can always check out our post on how to cook the perfect [fried egg](https://bonnettebites.com/breakfast/eggs/brunch/2020/05/09/sunday-morning-fried-eggs/){: target="_blank" rel="noopener"}\! I will let you in on a tiny secret. For this recipe, we used olive oil instead of butter to give our egg those perfect, crispy edges.
 
-![](/uploads/img-4101.jpg){: width="1560" height="1170"}
+![](/uploads/img-4101.jpg)
 
 Lemme tell you about the sauce. 1 tsp of sambal oelek is not spicy to me. At all. 2 tsp of sambal oelek is not very spicy to Linell, but I'm good with it. He said he would use 4 tsp if you are a heat lover; however, Linell is also the guy who literally lost his ability to taste heat a few years ago due to one too many hot wings. So, take your own risk with the sambal oelek\!&nbsp;
 
