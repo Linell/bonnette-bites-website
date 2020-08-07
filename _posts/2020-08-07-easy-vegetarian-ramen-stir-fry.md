@@ -52,7 +52,7 @@ recipe:
     also fry an egg\!&nbsp;
 ---
 
-Day 2940 of Quarantine: we're tired, y'all. Everyone is. I feel like menu planning each week has become increasingly difficult because we're eating home pretty much every single night. Easy meals are necessary, especially on days when you're completely uninspired by what's in your pantry - and there's nothing easier than our ramen stir fry\!&nbsp;
+Day 2,940 of Quarantine: we're tired, y'all. Everyone is. I feel like menu planning each week has become increasingly difficult because we're eating home pretty much every single night. Easy meals are necessary, especially on days when you're completely uninspired by what's in your pantry - and there's nothing easier than our ramen stir fry\!&nbsp;
 
 This recipe does not include cooking the fried egg pictured, but if you're interested you can always check out our post on how to cook the perfect [fried egg](https://bonnettebites.com/breakfast/eggs/brunch/2020/05/09/sunday-morning-fried-eggs/){: target="_blank" rel="noopener"}\! I will let you in on a tiny secret. For this recipe, we used olive oil instead of butter to give our egg those perfect, crispy edges.
 
