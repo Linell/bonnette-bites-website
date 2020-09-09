@@ -87,7 +87,7 @@ recipe:
     * Season with additional salt and pepper and serve immediately\!&nbsp;
 ---
 
-I love good, Southern food. Fried chicken, creamy mashed potatoes, macaroni and cheese, etc...you name it, I love it. To me, seitan is the holy grail of vegetarian comfort food and I love our recipe for Chicken Fried Seitan\!&nbsp;
+I love good, Southern food. Fried chicken, creamy mashed potatoes, macaroni and cheese, etc…you name it, I love it. Since I was a meat eater until 2019, getting that perfect "comfort food" meal has been difficult since so much of it revolves around fried meats. I first had seitan in a small beach town in California and I was forever changed. To me, seitan is the holy grail of vegetarian comfort food and I love our recipe for Chicken Fried Seitan\!&nbsp;
 
 When I made seitan for the first time, I kept thinking, 'Is this supposed to look like a blob of chewing gum?' YES\! As long as it pulls from the side and doesn't feel too dry, your seitan will be delicious as long as you season it correctly\!
 
