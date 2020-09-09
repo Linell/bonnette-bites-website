@@ -91,22 +91,22 @@ I love good, Southern food. Fried chicken, creamy mashed potatoes, macaroni and 
 
 When I made seitan for the first time, I kept thinking, 'Is this supposed to look like a blob of chewing gum?' YES\! As long as it pulls from the side and doesn't feel too dry, your seitan will be delicious as long as you season it correctly\!
 
-![](/uploads/img-4789.JPG){: srcset="/uploads/img-4789.JPG 1560w, /uploads/img-4789@2x.JPG 3120w" width="1560" height="1170"}
+![](/uploads/img-4789.JPG){: srcset="/uploads/img-4789.JPG 1560w, /uploads/img-4789@2x.JPG 3120w"}
 
 I like to use a pastry cutter for seitan because it is very dough-like. The serving size actually comes out to a 4oz portion and would be perfect alone or on a fried "chicken" sandwich.
 
-![](/uploads/img-4791.JPG){: width="3120" height="2340"}
+![](/uploads/img-4791.JPG)
 
 To wrap the seitan cutlet most effectively, I like to cut the foil to be about twice the size of the cutlet. I fold the ends that can't cover the seitan completely first, then the pieces that can. I wrap it tightly enough that the seitan can't peak out, but loose enough to let it expand while cooking.
 
-![](/uploads/img-4793.JPG){: width="3120" height="2340"}
+![](/uploads/img-4793.JPG)
 
 It's okay to stack them\! Our steamer pot is very tiny and only holds four seitan patties at a time, and I've never had an issue with stacking.
 
-![](/uploads/img-4795.JPG){: width="3120" height="2340"}
+![](/uploads/img-4795.JPG)
 
 Aren't they so delicious looking after frying?\! One of our favorite things to do is save our leftovers cutlets and use them on biscuits with honey butter the next morning. SO GOOD\!
 
-![](/uploads/img-4804.jpg){: width="3120" height="2340"}
+![](/uploads/img-4804.jpg)
 
 &nbsp;
