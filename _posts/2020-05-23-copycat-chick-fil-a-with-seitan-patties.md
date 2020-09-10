@@ -9,8 +9,10 @@ recipe:
   prep: 15 minutes
   cook: 10 minutes
   ingredients_markdown: >-
-    * 8 seitan cutlets, already made. We used a recipe from a cookbook, linked
-    in the article.
+    * 8 seitan cutlets, find recipe
+    [here](/dinner/seitan/2020/09/09/chicken-fried-seitan/){: target="_blank"
+    rel="noopener"} (pro-tip: use pickle juice instead of bourbon for a more
+    Chick-Fil-A like experience.)
 
     * Oil for frying
 
@@ -76,7 +78,7 @@ recipe:
 
 Since going mostly plant based, one thing we miss more than anything is Chick-Fil-A. When we were in California earlier this year, we ate at [Native Foods](https://www.nativefoods.com/){: target="_blank"}&nbsp;and they had THE BEST vegan Nashville Hot Chicken Sandwich. It was made with seitan, an ingredient I hadn't heard about before. Months after returning from our trip, that sandwich was still finding its way into our conversations, so we knew we had to try making our own seitan patties. We wanted to try a more simple recipe before diving into the Nashville Hot Chicken, so we were like "Duh, Chick-Fil-A," because it would be a cleaner and easier recipe, giving us a chance to analyze the seitan before dousing it in sauce.
 
-Luckily, as I've mentioned before, we got Damaris Phillips' [cookbook](https://www.nativefoods.com/){: target="_blank"}&nbsp;and she has a quick and easy recipe for seitan patties. We followed her directions, but replaced bourbon with pickle juice because Chick-Fil-A does brine their chicken in pickle juice. The recipe took about an hour and since we halved it, we had eight perfect little seitan cutlets ready to be breaded and deep fried. Don't stare at the cutlets pre-frying too hard, they're not pretty, but hot dang if they weren't tasty.
+Luckily, as I've mentioned before, we got Damaris Phillips' [cookbook](https://www.nativefoods.com/){: target="_blank"}&nbsp;and she has a quick and easy recipe for seitan patties. We followed her directions, but replaced bourbon with pickle juice because Chick-Fil-A does brine their chicken in pickle juice. The recipe took about an hour and since we halved it, we had eight perfect little seitan cutlets ready to be breaded and deep fried. Don't stare at the cutlets pre-frying too hard, they're not pretty, but hot dang if they weren't tasty. You can use our seitan recipe [here](/dinner/seitan/2020/09/09/chicken-fried-seitan/){: target="_blank" rel="noopener"}, just replacing the bourbon with pickle juice\!
 
 ![](/uploads/img-2397.JPG)
 
@@ -84,11 +86,11 @@ One of my favorite tricks I've learned while breading things is the two hand met
 
 ![](/uploads/img-2403.JPG)
 
-During frying, I was a little skeptical. I filled our largest cast iron pan about 2/3 of the way with canola oil. Chick-Fil-A does use peanut oil, but we didn't have any on hand. If you've got it, use it for an even more authentic experience. It looked like ALL of the breading disappeared the second the cutlets hit the oil. I cussed for a solid minute. Just look at how sad they are...
+During frying, I was a little skeptical. I filled our largest cast iron pan about 2/3 of the way with canola oil. Chick-Fil-A does use peanut oil, but we didn't have any on hand. If you've got it, use it for an even more authentic experience. It looked like ALL of the breading disappeared the second the cutlets hit the oil. I cussed for a solid minute. Just look at how sad they are…
 
 ![](/uploads/img-2404.JPG)
 
-....but then it when it was ready to flip - they were golden. They were perfect. I literally teared up. When we pulled them out after frying and set them on the cooling rack, they were the exact color of a Chick-Fil-A cutlet and perfectly crispy. I stared at them like I had just given birth to them. So proud.
+….but then it when it was ready to flip - they were golden. They were perfect. I literally teared up. When we pulled them out after frying and set them on the cooling rack, they were the exact color of a Chick-Fil-A cutlet and perfectly crispy. I stared at them like I had just given birth to them. So proud.
 
 ![](/uploads/img-2410-edit.jpg)
 
