@@ -42,7 +42,35 @@ recipe:
 
 
     Shredded cheddar cheese, chives, and additional sour cream for serving.
-  directions_markdown:
+  directions_markdown: >-
+    * Heat 2 tbsp of butter to a large, heavy-bottomed pot on medium. Add diced
+    tempeh bacon and cook for 5 minutes until bacon is crispy and dark. Turn
+    heat to low and remove bacon. Set aside for serving.
+
+    * Return heat to medium. Add remaining 3 tbsp of butter and onion and cook
+    for 4-5 minutes or until translucent and softened.
+
+    * Add garlic and cook for 30 seconds, until noticeably fragrant.
+
+    * Sprinkle flour over ingredients and whisk until smooth. (It will look like
+    an onion paste.)
+
+    * Add diced potatoes, veggie broth, milk, heavy cream, salt, pepper, and
+    chili powder. Stir well.
+
+    * Bring to a boil, stirring occasionally. Once boiling, cook soup for about
+    ten minutes or until the potatoes are fork tender. Continue to stir
+    frequently, but gently, to prevent scorching.
+
+    * Using an immersion blender, blend your soup until about half has processed
+    through. If you don't have an immersion blender, remove about five cups of
+    your soup and blend in a standing blender until smooth. If you want a less
+    chunky soup, blend more\! It's your call.
+
+    * Return the blended soup to the pot. Add sour cream and soy sauce. Simmer
+    for 15 minutes.
+
+    * Top with tempeh bacon, cheddar cheese, chives, and sour cream. Serve\!
 ---
 
 As we transition from summer into fall, soups become a major part of our dinner rotation. We love a delicious white bean soup, chili, or taco soup, but I have been missing out on that creamy, cheesy, bacon-y goodness of potato soup. Of course, most recipes call for chicken broth and bacon and we're plant based around here, so I had to come up with a recipe that fit our lifestyle without sacrificing taste or that perfect "ahhh" feeling you get with a warm bowl of soup.
